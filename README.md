@@ -20,7 +20,8 @@ you can still sit next to me but sometimes i often will have a slow response or 
 pls ily... 
 also quick disclaimer if i follow you i think you're cool and you should TOTALLY follow me back/j
 
- My friends!! 
+ 
  
 ![image](https://github.com/user-attachments/assets/8c99baca-4886-4749-b2cb-f0af143fdd13)
+
 end of this.... 
