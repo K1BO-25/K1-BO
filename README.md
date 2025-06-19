@@ -11,7 +11,7 @@ feel free to int with me uhh im quite shy so I'd advice you to do the first move
 also if you feel left out pls tell me! 
 ![image](https://github.com/user-attachments/assets/c34ca35f-3478-436a-8394-42ac208dd5f6)
 # DNIUF / IWEC
-i do this when im upset and a lot is going on so.. yeah
+i do this when im upset and a lot is going on so.. yeah but for DNIUF its just mostly likely that i want my friends around 
 # OFFTAB / AFK
 you can still sit next to me but sometimes i often will have a slow response or just not talk at all but i will try to talk to you! 
 # DNI 
