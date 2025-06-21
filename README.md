@@ -16,11 +16,12 @@ i do this when im upset and a lot is going on so.. yeah but for DNIUF its just m
 you can still sit next to me but sometimes i often will have a slow response or just not talk at all but i will try to talk to you! 
 # DNI 
 i rarely do this this but if yiu piss me off dont int! 
+also pls pls PLS. do not sit randomly if my name says dniuf, it makes me uncomfortable, so please dont
 
 ![image](https://github.com/user-attachments/assets/34377d11-6872-4bfc-ab69-beac571e9685)
 # SIGN ATA OR STRAW!
 pls ily... 
-also quick disclaimer if i follow you i think you're cool and you should TOTALLY follow me back/j
+also quick disclaimer you can follow me freely and if i follow you i think you're cool and you should TOTALLY follow me back/j
 
 ![image](https://github.com/user-attachments/assets/8c99baca-4886-4749-b2cb-f0af143fdd13)
 
