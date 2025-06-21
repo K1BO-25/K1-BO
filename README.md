@@ -17,7 +17,7 @@ you can still sit next to me but sometimes i often will have a slow response or 
 # DNI 
 i rarely do this this but if you piss me off dont int! 
 
-also pls pls PLS. do not sit randomly if my name says dniuf, it makes me uncomfortable, so please dont
+also pls pls PLS. do not sit randomly if my name says dniuf (if you are not my friend i mean bluenames) , it makes me uncomfortable, so please dont
 
 ![image](https://github.com/user-attachments/assets/34377d11-6872-4bfc-ab69-beac571e9685)
 # SIGN ATA OR STRAW!
